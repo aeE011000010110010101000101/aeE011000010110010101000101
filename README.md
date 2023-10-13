@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @aeE011000010110010101000101
+- 👀 I’m interested in batch , C# , java 
+- 🌱 I’m currently learning C# 
+- 💞️ I’m looking to collaborate on batch programmers.
+- 📫 You can reach me via discord! My discord user name is : æ€#3581
+- You can cooperate/ask any batch programs you want!
+- Currently cooperating with DewasSquid.
